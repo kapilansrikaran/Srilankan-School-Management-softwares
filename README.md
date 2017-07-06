@@ -1,1 +1,0 @@
-# Srilankan-School-Management-softwares
